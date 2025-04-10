@@ -1,1 +1,1 @@
-Repositório para acompanhamento da aula dia 10 de abril de 2025.
+Repositório para acompanhamento da aula dia 10 de abril de 2025. Para propósitos acadêmicos.
